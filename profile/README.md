@@ -1,5 +1,3 @@
-# IRTNOG
-
 Dear friends,
 
 My un-indicted co-conspirators and I would like to remind you There Is No Conspiracy™.
